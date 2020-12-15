@@ -1,1 +1,1 @@
-# legacy-vpn-live-pro
+bitly.com/legacy-vpn-live-pro
